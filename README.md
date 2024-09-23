@@ -1,2 +1,4 @@
-# J333PI
-My repository
+I'm currently studying
+I'm looking for someone who can teach me ...
+he/him
+I want to learn ... 
